@@ -25,7 +25,7 @@ had no significant arrhythmias; they include 5 men, aged 26 to 45, and 13 women,
 
 ## Research Affiliations
 1. The Hospital for Sick Children <br>
-Department of Critical Care Medicine  <br>s
+Department of Critical Care Medicine  <br>
 Toronto, Ontario, Canada
 
 2. Laussen Labs <br>
